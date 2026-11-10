@@ -36,4 +36,4 @@ An independent, mobile-first website concept for Ouray T-Shirts and Momentos, a 
 
 ## Contact status
 
-The contact has offered to speak with the manager and send selected photos. The accompanying follow-up message must share the independent preview as a proposal, identify it as independent, and invite the manager's feedback. Do not imply prior commission or approval.
+The contact offered to speak with the manager and send selected photos. On 09/11/2026, a follow-up with the independent preview was prepared and several Messenger send attempts showed Facebook's “Não foi possível enviar” status. No successful delivery is confirmed. Do not claim the preview was received; retry manually in the open conversation. The reply should identify the concept as independent and invite the manager's feedback. Do not imply prior commission or approval.
